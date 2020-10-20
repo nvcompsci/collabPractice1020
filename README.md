@@ -1,1 +1,1 @@
-An emo is to a hedgehog as a giraffe is to a mouse.
+An emu is to a hedgehog as a Elephant is to a mouse
