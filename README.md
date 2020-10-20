@@ -1,1 +1,1 @@
-An emy is to a hedgebog as a 
+An emo is to a hedgehog as a giraffe is to a mouse.
