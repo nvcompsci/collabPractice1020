@@ -1,1 +1,1 @@
-An emy is to a hedgebog as a 
+An emy is to a hedgedog as a 
